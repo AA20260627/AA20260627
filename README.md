@@ -1,16 +1,28 @@
-## Hi there 👋
+黑料不打烊-0627-黑料不打烊665fun|哪个浏览器可以看黑料不打烊|881比鸭
 
-<!--
-**AA20260627/AA20260627** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## [👉👉♥♥点此进入♥回家线路一♥♥👈👈](https://unpkg.com/182run/index.html)
+## [👉👉♥♥点此进入♥回家线路二♥♥👈👈](https://unpkg.com/182-1run/index.html)
 
-Here are some ideas to get you started:
+#### 永久黑料地址：https://444.run
+#### 备用黑料地址：https://181.run
+#### 备用黑料地址：https://182.run
+#### 备用黑料地址：https://183.run
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+黑料不打烊：全天候热点爆料合集，吃瓜不掉线！
+在社交媒体信息爆炸的时代，想第一时间掌握网络热点、明星塌房、网红翻车现场？那你一定听说过——黑料不打烊。作为一个专注于爆料资讯的网站/平台，黑料不打烊以“实时更新 + 多平台同步 + 匿名投稿机制”的独特优势，成为无数吃瓜网友的收藏夹必备。
+
+什么是黑料不打烊？
+“黑料不打烊”意指爆料内容不断档、全天候在线。从深夜直播翻车事件、网红私生活曝光，到明星代言翻车、品牌公关危机，每一条社会舆论风暴，这里都第一时间整理分析、实锤曝光。
+
+网站特色亮点
+24小时更新不断档
+每天多时段更新，涵盖娱乐圈、网络红人、社会热点，确保你每次访问都有新瓜可吃。
+
+匿名投稿机制
+用户可自主爆料，支持匿名上传图文与视频内容，经平台审核发布，保证信息新鲜度与真实性。
+
+多通道防封镜像
+提供最新地址发布页、Telegram频道、RSS订阅，确保在各种网络环境下都能快速访问，绝不错过任何黑料更新。
+
+爆料榜单+分类清晰
+明星爆料、网红翻车、职场内幕、校园事件等内容按类归档，搭配热度排行榜，方便浏览与二次传播。
